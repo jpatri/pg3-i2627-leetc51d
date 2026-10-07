@@ -7,7 +7,7 @@ João Patriarca, gabinete F.0.23
 
 **Horário letivo:**
  - 2ª feira, 11:00-14:00, LH3, [T|P]
- - 6ª feira, 14:00-15:30, G.0.18, [T]
+ - 4ª feira, 14:00-15:30, G.0.18, [T]
 
 **Horário de dúvidas:**
  - Atendimento presencial - gabinete F.0.23 - segunda entre as 15:00 e as 16:00, quarta entre as 11:00 e as 13:00 e sexta entre 15:00 e as 18:00
